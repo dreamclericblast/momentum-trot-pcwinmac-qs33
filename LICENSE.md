@@ -1,4 +1,4 @@
-# 
+# Professionnel momentum trading bot extensions for Mac OS | Élite momentum trading bot extensions for PC Windows. Featuring trading de contrats à terme and stratégie de retour à la moyenne — optimized for maximum performance.
 
 
 
